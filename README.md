@@ -12,7 +12,7 @@ I hope you enjoy this simple App.
 
 Thanks so much for reading.
 
-Greetings, Bartolomé.-
+Greetings, Agustín.-
 
 
 
